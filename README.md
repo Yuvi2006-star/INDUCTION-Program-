@@ -1,10 +1,15 @@
 # INDUCTION-Program
 Activity Report of Induction Program 2025
 Name: Yuvraj Singh 
+
 Father's Name: Satnam Singh 
+
 Branch: Robotics and Artificial intelligence 
+
 Registration number:25104263
+
 Mobile Number: 9872560316
+
 Email: yuvrajsingh03006@gmail.com 
 
 
@@ -19,3 +24,7 @@ Day-2
 
 
 Day 2 started with the amazing youth development program conducted by Priya Darshani mam. She emphasized us to understand what our actual goal is. She discussed with us that how much problems our parents and relatives face when it comes to the basic aspect of right understanding . She influenced us to see inside ourselves what is fruitful for us . Then Dr Arvind Dhingra sir ( Director of Step and Incharge TAC) discussed with us the club which they used to conduct on various knowledgeable aspects like IEEE, English and many more. He conducted a game which I enthusiastically joined in and tried to crack it but me and my colleagues were not able to crack it . Sir is an extraordinary person which when mentored you will make your life easier. Day 2 end with a maths and english proficiency test. 
+
+
+Day -3 
+
