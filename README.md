@@ -30,3 +30,7 @@ Day 2 started with the amazing youth development program conducted by Priya Dars
 Day-3
 
 On Day -3 we started with the introduction of causmic club . It reflects the importance of English speaking skills and core development of the mind of how to make a profitable venture, business or any other job which we are engaged with . It emphasizes the holistic development of the  youth to deal with the difficulties of life ahead in our journey.Then Dr Randhir sir discussed with us about motorsports . He discussed with us how even 0.1 millisecond matters. He discussed some of the questions related to it. It was truly an unbelievable experience to listen to him.Then Mrs Priya Darshani mam discussed the importance of Universal Human Rights in our life for our overall development. It was truly an amazing experience to listen to her and to understand what my actual aim in life was. It was to lead a happy and prosperous life with continuity. Then at last we ended our college day with an understanding of C++ compiler and its application
+
+Day -4 
+
+On day 4 we attended a lecture with NCC head coach who secured a good rank in study as well. Sir is an eminent personality with self confidence in him. Then we attended a le ture on millets . Mam discussed the importance of millets in life with us. Then we concluded the day 4 of the induction program 
