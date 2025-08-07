@@ -33,4 +33,12 @@ On Day -3 we started with the introduction of causmic club . It reflects the imp
 
 Day -4 
 
-On day 4 we attended a lecture with NCC head coach who secured a good rank in study as well. Sir is an eminent personality with self confidence in him. Then we attended a le ture on millets . Mam discussed the importance of millets in life with us. Then we concluded the day 4 of the induction program 
+On day 4 we attended a lecture with NCC head coach who secured a good rank in study as well. Sir is an eminent personality with self confidence in him. I was pleased to meet him . He also builded our exposure to the next level by discussing his story with us . Then we attended a lecture on millets . Mam discussed the importance of millets in life with us. Then we concluded the day 4 of the induction program .
+
+Day -5
+
+On day 5 we firstly attended the lecture conducted by Dr Parminder Singh (Dean - Student Welfare). He told us about various clubs and societies which develop exposure for our interviews.Then we attended a lecture by Mr. Manpreet Singh sir on "Fitness for Engineers". He told us various routines which we can practice to make our physique good and fit. He made us understand that we don't need to take protein shakes or powder for development. We can even eat normal diet to make our body fit. Then we attended a lecture by Brigadier P.S. Cheema sir. He quoted some dialogues which made us believe that Army is one of the brave and proud job and we should take part in it to serve the nation to our fullest. Then we attended a lecture on physics by professor Jaspreet Singh sir in which sir told us about the syllabus and chapters that we need to study on it. So this marked the end of the day 5
+
+Day -6 
+
+On day 6 firstly we attended lecture on English by Professor Manjot Kaur mam . Ahe told us to introduce ourselves in front of each other then she conducted a game by asking the students vocabulary. in which we all participated coactively and still lost it. She made us understand that losing is not a fault but not learning from it is a fault so we should try better next time and try to concentrate more on it. I was pleased to attend the lecture with her and wish to be her student yet again. Then we attended the lecture conducted by Dr Lakhvir Singh sir (Incharge of CML) . He discussed with us about nptel and swayam. Then head of National Service Scheme (NSS) Jasvir Singh Grewal sir took the lecture. He organised some activities in which me and my colleagues coactively performed. This marked the end of day 6 of our induction day program.
